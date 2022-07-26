@@ -1,4 +1,4 @@
-# 10-min Cooking Recipe for any thing 
+# 10-min Recipe for any thing 
 # About chocolate 
 
 How to make your own chocolate? 
